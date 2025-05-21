@@ -2,9 +2,7 @@
 
 Save on IPRoyal proxies with exclusive coupon codes! Get up to 78% off for web scraping, privacy, or SEO. Browse smarter and spend less.
 
-Explore offers at [Bytegain](https://www.bytegain.com/Recommended/biiproyal/).
-
-## Available Coupon Codes
+## IPRoyal Coupon Codes
 
 - **30% Off**: 30% off any plan, no code required. Rating: ★★★★★
 - **5% Off**: 5% off any plan, use code **ROYALSTART5**. Rating: ★★★★☆
